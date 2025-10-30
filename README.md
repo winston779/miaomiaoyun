@@ -1,6 +1,6 @@
 # 秒秒云机场官网地址
 
-最新地址：[秒秒云机场.com](https://mm2.zzlcsx.com/#/register?code=zRKPWu6P)
+最新地址：[秒秒云机场.com](https://m1.mmy2026.com:8888/#/register?code=zRKPWu6P)
 
 ## 秒秒云介绍
 
