@@ -1,6 +1,6 @@
 # 秒秒云机场官网地址
 
-最新地址：[秒秒云机场.com](https://m2.mmfjeifje.com/#/register?code=zRKPWu6P)
+最新地址：[秒秒云机场.com](https://dl2.mmy8.com/#/register?code=zRKPWu6P)
 
 ## 秒秒云介绍
 
@@ -12,7 +12,9 @@
 
 ## 秒秒云优惠码
 
-双11优惠券：1m1m
+新人专享福利 8.0折
+
+2026888
 
 ## 秒秒云价格
 
